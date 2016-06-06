@@ -1,0 +1,1 @@
+The variables we used were 'Narcissim' and 'Social Harmony'.
